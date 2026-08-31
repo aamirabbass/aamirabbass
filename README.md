@@ -83,8 +83,6 @@ National Skills University of Qom | 2022 – 2024
 🏆 **Top Student in Computer Networks**
 Selected as one of the top students in the field during the **3rd and 4th semesters**.
 
-🎖️ **Military Service Completed**
-
 ---
 
 ## 📚 Currently Developing
